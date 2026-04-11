@@ -1,5 +1,5 @@
 # 💫 About Me:
-i am intreseted t learn new things in full stalk devlopment<br>i have more intrest in ai
+i have intreset in learning new things in full stalk devlopment<br>
 
 
 ## 🌐 Socials:
